@@ -36,6 +36,8 @@ Curry paste
 Coconut oil
 2 cans  coconut milk
 Firm tofu
+5 Kaffir lime leaves
+Fish sauce
 
 ## Paste method
 1. Soak the chillis in water for at least a hour
@@ -52,7 +54,7 @@ Firm tofu
 ## Curry Methiod
 1. Over medium heat add the coconut oil. One hot add all the curry paste until fragrant
 2. Add half a can of coconut milk until it seems to reduce a bit
-3. Chop tofu into 2cm cubes. Add to the curry. Add rest of the coconut milk
+3. Chop tofu into 2cm cubes. Add to the curry. Add rest of the coconut milk. Add crushed kaffir lime leaves and fish sauce to taste
 4. Simmer for 5m
 
 Served with red capsicum, green beans and gai lan (Chinese broccoli) (and rice)
